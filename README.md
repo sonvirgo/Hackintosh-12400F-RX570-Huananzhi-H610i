@@ -1,0 +1,1 @@
+# Hackintosh-12400F-RX570-Huananzhi-H610i
